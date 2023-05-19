@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @zhangxianhongxianhong
 - 👀 I’m interested in swimming and coding
-- 🌱 I’m currently learning car driving
 - 📫 How to reach me :https://www.rainbow-z.tk/
 
 <!---
